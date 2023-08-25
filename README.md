@@ -4,7 +4,7 @@
 - me adapto a cualquier circunstancia, me considero una persona resolutiva, organizada con una gran motivación,ejerciendo siempre un liderazgo genuino desde mis diferentes roles y cargos que he desempeñado,
 - me caracterizo  por mi excelente vocación de servicio,en busco oportunidades de crecimiento laboral aceptando nuevos retos y desafíos.
 - 💞️ me encuentro estudiando Desarrollo de Aplicaciones Web y mis expectativas son ejercer mi carrera profesional y comvertirme en el mejor desarrollador.
-- 📫 me peden encontrar en mi red social de twitter como @riverayilmar05 y a mi correo electronico yegereve@gmail.com.
+- 📫 me pueden encontrar en mi red social de twitter como @riverayilmar05 y a mi correo electronico yegereve@gmail.com.
 
 <!---
 YilmasterRivera/YilmasterRivera is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
